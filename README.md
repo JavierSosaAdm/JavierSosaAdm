@@ -10,7 +10,7 @@ Mi expertise se centra en el uso de bases de datos SQL, principalmente PostgreSQ
 
 Fuera del mundo del código, encuentro equilibrio y creatividad en mis hobbies. Disfruto de estar informado en el mundo de la Macroeconomía de los paises, encuentro sastifacción en leer libros relacionados a doctrinas económicas, sucesos históricos relacionados con la misma, libros de tecnicas de venta, documentales a fin y expeciencias de fundadores de grandes negocios.
 
-Destaco por mi capacidad para trabajar y liderar equipos en diferentes hámbitos, algo que he cultivado a través de diferentes experiencias laborales y proyectos, donde además he tenido la oportunidad de liderar iniciativas clave que impulsaron el éxito del equipo, basándome en la comunicación constante paraa una eficiencia en la toma de desiciones y eficacia en las tareas llevadas a cabo.
+Destaco por mi capacidad para trabajar y liderar equipos en diferentes ámbitos, algo que he cultivado a través de diferentes experiencias laborales y proyectos, donde además he tenido la oportunidad de liderar iniciativas clave que impulsaron el éxito del equipo, basándome en la comunicación constante paraa una eficiencia en la toma de desiciones y eficacia en las tareas llevadas a cabo.
 
 ### Qué hago?
 
